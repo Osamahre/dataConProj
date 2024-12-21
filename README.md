@@ -8,4 +8,4 @@ Fuhaid Arafat Mubarak ( 2210213596)
 Abdulrahman Karman (2210213541)
 
 
-FOR THE DATABASE PROJECT. PROF \  ILHAMI
+FOR THE DATABASE PROJECT. PROF \  ILHAMI (100% english)
